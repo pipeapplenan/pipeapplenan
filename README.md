@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Xiaonan Gu
 - 👀 I’m an experienced IT project mananger, and my passion is to let every engineer working without IT project mananger.
-- 🌱 I’m currently learning Information Technology
+- 🌱 I’m currently studying Information Technology
 - 💞️ I’m looking for jobs in IT areas.
 - 📫 You can reach me from https://www.canva.com/design/DAFSpbssnpQ/pabcIGKZnL4HNAeNVqrOzA/edit
 - 📫 You can reach me from Linkedin
